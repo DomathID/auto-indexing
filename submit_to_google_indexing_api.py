@@ -52,4 +52,4 @@ print(f"Submitted {selected_url} to Google Indexing API")
 timestamp = datetime.utcnow().isoformat()
 with open("updated.md", "a") as file:
     file.write(f"Submitted URL: {selected_url} at {timestamp} UTC\n")
-    
+                
