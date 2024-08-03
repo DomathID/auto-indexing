@@ -40,6 +40,6 @@ jobs:
           git config --global user.name 'DomathID'
           git config --global user.email 'admin@yukinoshita.web.id'
           git add updated.md
-          git commit -m "Update with the latest submitted URL"
-          git push https://DomathID:${{ secrets.GH_PAT }}@github.com/DomathID/auto-indexing.git
+          git commit -m "Update with the latest submitted URLs"
+          git push https://DomathID:${{ secrets.GH_PAT }}@github.com/DomathID/auto-indexing.git HEAD:main
           
