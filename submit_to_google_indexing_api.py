@@ -6,7 +6,7 @@ from googleapiclient.discovery import build
 from datetime import datetime
 
 # URL of your sitemap
-SITEMAP_URL = "https://yourwebsite.com/sitemap.xml"
+SITEMAP_URL = "https://www.yukinoshita.web.id/sitemap.xml"
 
 # Load service account credentials
 credentials = service_account.Credentials.from_service_account_file(
