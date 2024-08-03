@@ -6,7 +6,7 @@ from googleapiclient.discovery import build
 from datetime import datetime
 
 # URL of your sitemap
-SITEMAP_URL = "https://www.yukinoshita.web.id/sitemap.xml"
+SITEMAP_URL = "https://yourwebsite.com/sitemap.xml"
 
 # Load service account credentials
 credentials = service_account.Credentials.from_service_account_file(
@@ -41,15 +41,16 @@ def publish_url(url):
 # Fetch URLs from sitemap
 urls = fetch_sitemap(SITEMAP_URL)
 
-# Select the most recently updated URL
-selected_url = urls[0]
+# Select the top 5 most recently updated URLs
+selected_urls = urls[:5]
 
-# Submit the selected URL
-publish_url(selected_url)
-print(f"Submitted {selected_url} to Google Indexing API")
+# Submit the selected URLs
+for url in selected_urls:
+    publish_url(url)
+    print(f"Submitted {url} to Google Indexing API")
 
-# Update README.md or updated.md with the submitted URL and timestamp
+# Update updated.md with the submitted URLs and timestamp
 timestamp = datetime.utcnow().isoformat()
 with open("updated.md", "a") as file:
-    file.write(f"Submitted URL: {selected_url} at {timestamp} UTC\n")
-                
+    for url in selected_urls:
+        file.write(f"Submitted URL: {url} at {timestamp} UTC\n")
