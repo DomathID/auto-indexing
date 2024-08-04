@@ -8,3 +8,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-buat-video-ai-joget-y
 Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-mengganti-nama-domain-serveo-termux.html at 2024-08-03T19:10:59.980614 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/forward-localhost-menggunakan-serveonet.html at 2024-08-03T19:10:59.980614 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/toilet-bound-hanako-kun-anime-2nd-season-debuts-in-january-2025.html at 2024-08-03T19:10:59.980614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-download-video-dari-doodstream.html at 2024-08-04T00:52:15.496707 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-08-04T00:52:15.496707 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-buat-video-ai-joget-yang-viral-viggle.html at 2024-08-04T00:52:15.496707 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-mengganti-nama-domain-serveo-termux.html at 2024-08-04T00:52:15.496707 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/forward-localhost-menggunakan-serveonet.html at 2024-08-04T00:52:15.496707 UTC
