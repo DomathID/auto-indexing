@@ -18,3 +18,8 @@ Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodst
 Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-buat-video-ai-joget-yang-viral-viggle.html at 2024-08-05T00:49:56.952703 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-mengganti-nama-domain-serveo-termux.html at 2024-08-05T00:49:56.952703 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/forward-localhost-menggunakan-serveonet.html at 2024-08-05T00:49:56.952703 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/apa-itu-ngrok-dan-kegunaan.html at 2024-08-06T00:47:37.814394 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-verifikasi-alamat-adsense-tanpa-pin.html at 2024-08-06T00:47:37.814394 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-06T00:47:37.814394 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/kumpulan-kode-perintah-termux-pemula.html at 2024-08-06T00:47:37.814394 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/forward-localhost-menggunakan-serveonet.html at 2024-08-06T00:47:37.814394 UTC
