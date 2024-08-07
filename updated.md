@@ -23,3 +23,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-verifikasi-alamat-ads
 Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-06T00:47:37.814394 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/01/kumpulan-kode-perintah-termux-pemula.html at 2024-08-06T00:47:37.814394 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/forward-localhost-menggunakan-serveonet.html at 2024-08-06T00:47:37.814394 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/10/fakta-tentang-kanae-kocho-demon-slayer.html at 2024-08-07T00:48:33.941105 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-07T00:48:33.941105 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/apa-itu-ngrok-dan-kegunaan.html at 2024-08-07T00:48:33.941105 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-verifikasi-alamat-adsense-tanpa-pin.html at 2024-08-07T00:48:33.941105 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-07T00:48:33.941105 UTC
