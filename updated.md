@@ -28,3 +28,8 @@ Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-v
 Submitted URL: https://www.yukinoshita.web.id/2024/07/apa-itu-ngrok-dan-kegunaan.html at 2024-08-07T00:48:33.941105 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-verifikasi-alamat-adsense-tanpa-pin.html at 2024-08-07T00:48:33.941105 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-07T00:48:33.941105 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/apa-itu-ngrok-dan-kegunaan.html at 2024-08-08T00:48:22.332538 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/cara-mendapatkan-backlink-gov-dan-edu.html at 2024-08-08T00:48:22.332538 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-08-08T00:48:22.332538 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/kisah-masa-lalu-9-pilar-di-demon-slayer.html at 2024-08-08T00:48:22.332538 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/fakta-yoshiki-murayama-pentolan-sma-oya.html at 2024-08-08T00:48:22.332538 UTC
