@@ -38,3 +38,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/06/pp-couple-sahabat-ber-2-te
 Submitted URL: https://www.yukinoshita.web.id/2024/06/20-pp-couple-bestie-ber-2-aesthetic.html at 2024-08-09T00:49:02.792101 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/trailer-musim-kedua-anime-rising-impact.html at 2024-08-09T00:49:02.792101 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/05/kimetsu-no-yaiba-season-4-kapan-rilis.html at 2024-08-09T00:49:02.792101 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-08-10T00:48:11.820156 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditolak-zarchiver.html at 2024-08-10T00:48:11.820156 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-10T00:48:11.820156 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-10T00:48:11.820156 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-10T00:48:11.820156 UTC
