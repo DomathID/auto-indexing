@@ -43,3 +43,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditol
 Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-10T00:48:11.820156 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-10T00:48:11.820156 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/ide-studio-ghibli-di-2024-wallpaper-anime.html at 2024-08-10T00:48:11.820156 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/fakta-fakta-johan-liebert-anime-monsters.html at 2024-08-11T00:53:04.647766 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-menit-selebgram.html at 2024-08-11T00:53:04.647766 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-08-11T00:53:04.647766 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditolak-zarchiver.html at 2024-08-11T00:53:04.647766 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-11T00:53:04.647766 UTC
