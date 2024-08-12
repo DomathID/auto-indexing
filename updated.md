@@ -48,3 +48,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-meni
 Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-08-11T00:53:04.647766 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditolak-zarchiver.html at 2024-08-11T00:53:04.647766 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-11T00:53:04.647766 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-12T00:50:46.679042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-08-12T00:50:46.679042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/12/cara-submit-peta-situs-sitemap-ke-google-search-console.html at 2024-08-12T00:50:46.679042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/12/script-tools-termux-my-id-untuk-seo-blog.html at 2024-08-12T00:50:46.679042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-submit-sitemap-di-google-webmaster.html at 2024-08-12T00:50:46.679042 UTC
