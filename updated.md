@@ -53,3 +53,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-s
 Submitted URL: https://www.yukinoshita.web.id/2023/12/cara-submit-peta-situs-sitemap-ke-google-search-console.html at 2024-08-12T00:50:46.679042 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/12/script-tools-termux-my-id-untuk-seo-blog.html at 2024-08-12T00:50:46.679042 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-submit-sitemap-di-google-webmaster.html at 2024-08-12T00:50:46.679042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-menghilangkan-tulisan-activate-windows.html at 2024-08-13T00:49:51.198540 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visitor-jingling.html at 2024-08-13T00:49:51.198540 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-13T00:49:51.198540 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-08-13T00:49:51.198540 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/12/cara-submit-peta-situs-sitemap-ke-google-search-console.html at 2024-08-13T00:49:51.198540 UTC
