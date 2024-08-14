@@ -58,3 +58,8 @@ Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visito
 Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-13T00:49:51.198540 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-08-13T00:49:51.198540 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/12/cara-submit-peta-situs-sitemap-ke-google-search-console.html at 2024-08-13T00:49:51.198540 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-14T00:48:45.117547 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-14T00:48:45.117547 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/mengatasi-aplikasi-tidak-kompatible-android-lengkap.html at 2024-08-14T00:48:45.117547 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/fakta-yoshiki-murayama-pentolan-sma-oya.html at 2024-08-14T00:48:45.117547 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/fakta-todoroki-yosuke-high-and-low.html at 2024-08-14T00:48:45.117547 UTC
