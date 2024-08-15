@@ -63,3 +63,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collec
 Submitted URL: https://www.yukinoshita.web.id/2024/08/mengatasi-aplikasi-tidak-kompatible-android-lengkap.html at 2024-08-14T00:48:45.117547 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/fakta-yoshiki-murayama-pentolan-sma-oya.html at 2024-08-14T00:48:45.117547 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/fakta-todoroki-yosuke-high-and-low.html at 2024-08-14T00:48:45.117547 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-akses-link-streaming-video-viral-yandex.html at 2024-08-15T00:45:55.653561 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2024-08-15T00:45:55.653561 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-15T00:45:55.653561 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/google-dork-for-seo-collection.html at 2024-08-15T00:45:55.653561 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/mengatasi-aplikasi-tidak-kompatible-android-lengkap.html at 2024-08-15T00:45:55.653561 UTC
