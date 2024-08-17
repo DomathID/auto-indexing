@@ -73,3 +73,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkua
 Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-akses-link-streaming-video-viral-yandex.html at 2024-08-16T00:47:50.463135 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2024-08-16T00:47:50.463135 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-16T00:47:50.463135 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2024-08-17T00:46:04.967042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-08-17T00:46:04.967042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/cara-mengubah-tampilan-termux-android.html at 2024-08-17T00:46:04.967042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-akses-link-streaming-video-viral-yandex.html at 2024-08-17T00:46:04.967042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2024-08-17T00:46:04.967042 UTC
