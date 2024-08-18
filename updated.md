@@ -78,3 +78,8 @@ Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-
 Submitted URL: https://www.yukinoshita.web.id/2023/07/cara-mengubah-tampilan-termux-android.html at 2024-08-17T00:46:04.967042 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-akses-link-streaming-video-viral-yandex.html at 2024-08-17T00:46:04.967042 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2024-08-17T00:46:04.967042 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-08-18T00:52:11.526808 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/profil-bio-erika-putri-yang-viral.html at 2024-08-18T00:52:11.526808 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-18T00:52:11.526808 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/9-pp-luffy-gear-5-yang-viral-di-tiktok.html at 2024-08-18T00:52:11.526808 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2024-08-18T00:52:11.526808 UTC
