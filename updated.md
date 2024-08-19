@@ -83,3 +83,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/profil-bio-erika-putri-yan
 Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-18T00:52:11.526808 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/07/9-pp-luffy-gear-5-yang-viral-di-tiktok.html at 2024-08-18T00:52:11.526808 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2024-08-18T00:52:11.526808 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-08-19T00:49:33.558357 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/profil-bio-erika-putri-yang-viral.html at 2024-08-19T00:49:33.558357 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-19T00:49:33.558357 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/9-pp-luffy-gear-5-yang-viral-di-tiktok.html at 2024-08-19T00:49:33.558357 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2024-08-19T00:49:33.558357 UTC
