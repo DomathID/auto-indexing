@@ -93,3 +93,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/profil-bio-erika-putri-yan
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-nonton-tv-gratis-di-hp.html at 2024-08-20T00:48:01.306884 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-08-20T00:48:01.306884 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/07/kumpulan-pp-luffy-gear-5-viral-tiktok.html at 2024-08-20T00:48:01.306884 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/azizah-salsha-dan-salim-nauderer-diduga-selingkuh.html at 2024-08-21T00:47:45.683484 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-azizah-salsha-yang-kesebar.html at 2024-08-21T00:47:45.683484 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-menghasilkan-uang-dari-seedbacklink.html at 2024-08-21T00:47:45.683484 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/fakta-kenjaku-dan-4-tubuh-yang-dirasuki.html at 2024-08-21T00:47:45.683484 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-08-21T00:47:45.683484 UTC
