@@ -103,3 +103,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-22T00:50:09.270476 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/profil-bio-erika-putri-yang-viral.html at 2024-08-22T00:50:09.270476 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-syur-mirip-azizah-salsha.html at 2024-08-22T00:50:09.270476 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/azizah-salsha-dan-salim-nauderer-diduga-selingkuh.html at 2024-08-23T00:48:18.542082 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-syur-mirip-azizah-salsha.html at 2024-08-23T00:48:18.542082 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-menit-selebgram.html at 2024-08-23T00:48:18.542082 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-23T00:48:18.542082 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-23T00:48:18.542082 UTC
