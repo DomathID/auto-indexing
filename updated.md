@@ -108,3 +108,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-syur-mirip-aziz
 Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-menit-selebgram.html at 2024-08-23T00:48:18.542082 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-23T00:48:18.542082 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-blunder-8-menit-erika-putri.html at 2024-08-23T00:48:18.542082 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-download-harvest-moon-home-sweet.html at 2024-08-24T00:46:53.580047 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/azizah-salsha-dan-salim-nauderer-diduga-selingkuh.html at 2024-08-24T00:46:53.580047 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-syur-mirip-azizah-salsha.html at 2024-08-24T00:46:53.580047 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-menit-selebgram.html at 2024-08-24T00:46:53.580047 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-24T00:46:53.580047 UTC
