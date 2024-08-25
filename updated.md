@@ -113,3 +113,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/azizah-salsha-dan-salim-na
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-video-syur-mirip-azizah-salsha.html at 2024-08-24T00:46:53.580047 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/viral-erika-blunder-8-menit-selebgram.html at 2024-08-24T00:46:53.580047 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/video-erika-putri-blunder-8menit-yang-jadi-sorotan.html at 2024-08-24T00:46:53.580047 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-harvest-moon-home-sweet-home-apk.html at 2024-08-25T00:53:15.818805 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/bug-indosat-0pok-unlimited.html at 2024-08-25T00:53:15.818805 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-08-25T00:53:15.818805 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-membuat-iklan-melayang-di-kanan-kiri-blog-terbaru.html at 2024-08-25T00:53:15.818805 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/03/cara-hapus-file-terinstall-termux.html at 2024-08-25T00:53:15.818805 UTC
