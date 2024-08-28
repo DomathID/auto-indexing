@@ -128,3 +128,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/link-harvest-moon-home-swe
 Submitted URL: https://www.yukinoshita.web.id/2023/10/bug-indosat-0pok-unlimited.html at 2024-08-27T00:50:01.893165 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-08-27T00:50:01.893165 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-membuat-iklan-melayang-di-kanan-kiri-blog-terbaru.html at 2024-08-27T00:50:01.893165 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-08-28T00:50:31.100311 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-yang-viral.html at 2024-08-28T00:50:31.100311 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/link-harvest-moon-home-sweet-home-apk.html at 2024-08-28T00:50:31.100311 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/bug-indosat-0pok-unlimited.html at 2024-08-28T00:50:31.100311 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-08-28T00:50:31.100311 UTC
