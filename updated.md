@@ -153,3 +153,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-mengisi-baterai-seped
 Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-09-01T00:59:30.068166 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-yang-viral.html at 2024-09-01T00:59:30.068166 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/link-harvest-moon-home-sweet-home-apk.html at 2024-09-01T00:59:30.068166 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-memperbaiki-flashdisk-write-protected.html at 2024-09-02T00:52:30.002737 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-pelukan-yang.html at 2024-09-02T00:52:30.002737 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-mengisi-baterai-sepeda-listrik.html at 2024-09-02T00:52:30.002737 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-09-02T00:52:30.002737 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-yang-viral.html at 2024-09-02T00:52:30.002737 UTC
