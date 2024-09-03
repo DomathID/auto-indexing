@@ -158,3 +158,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-mengisi-baterai-sepeda-listrik.html at 2024-09-02T00:52:30.002737 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-09-02T00:52:30.002737 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-yang-viral.html at 2024-09-02T00:52:30.002737 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/httpswww.yukinoshita.web.id202409siapa-laras-gartiana-noe.html at 2024-09-03T00:50:40.926794 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-memperbaiki-flashdisk-write-protected.html at 2024-09-03T00:50:40.926794 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-pelukan-yang.html at 2024-09-03T00:50:40.926794 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-mengisi-baterai-sepeda-listrik.html at 2024-09-03T00:50:40.926794 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-09-03T00:50:40.926794 UTC
