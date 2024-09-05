@@ -168,3 +168,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-memperbaiki-flashdisk
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-pelukan-yang.html at 2024-09-04T00:51:37.979308 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-mengisi-baterai-sepeda-listrik.html at 2024-09-04T00:51:37.979308 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-09-04T00:51:37.979308 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-aktivasi-windows-10-permanen-tanpa-key.html at 2024-09-05T00:51:20.270701 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/cara-menghilangkan-tulisan-activate-windows.html at 2024-09-05T00:51:20.270701 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/httpswww.yukinoshita.web.id202409siapa-laras-gartiana-noe.html at 2024-09-05T00:51:20.270701 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-memperbaiki-flashdisk-write-protected.html at 2024-09-05T00:51:20.270701 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-membuat-video-ai-hug-pelukan-yang.html at 2024-09-05T00:51:20.270701 UTC
