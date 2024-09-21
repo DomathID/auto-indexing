@@ -248,3 +248,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-
 Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-09-20T00:52:48.304743 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/ishura-season-2-ungkap-teaser-pemeran.html at 2024-09-20T00:52:48.304743 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-09-20T00:52:48.304743 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/trailer-video-pertama-anime-summer.html at 2024-09-21T00:51:59.279113 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-09-21T00:51:59.279113 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-09-21T00:51:59.279113 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/ishura-season-2-ungkap-teaser-pemeran.html at 2024-09-21T00:51:59.279113 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-09-21T00:51:59.279113 UTC
