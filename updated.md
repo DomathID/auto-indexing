@@ -268,3 +268,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/09/kyoto-animation-reveals-mi
 Submitted URL: https://www.yukinoshita.web.id/2024/09/trailer-video-pertama-anime-summer.html at 2024-09-24T00:54:37.239687 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-09-24T00:54:37.239687 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-09-24T00:54:37.239687 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/my-happy-marriage-season-2-ungkapkan.html at 2024-09-25T00:55:13.061037 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/kyoto-animation-reveals-miss-kobayashi-dragon-maid-a-lonely-dragon-wants-to-be-loved-film-for-2025.html at 2024-09-25T00:55:13.061037 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/trailer-video-pertama-anime-summer.html at 2024-09-25T00:55:13.061037 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-09-25T00:55:13.061037 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-09-25T00:55:13.061037 UTC
