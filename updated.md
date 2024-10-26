@@ -423,3 +423,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/10/10-cara-efektif-belajar-ba
 Submitted URL: https://www.yukinoshita.web.id/2024/10/10-website-ai-untuk-membuat-logo-gratis.html at 2024-10-25T00:55:01.277120 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/10-platform-ai-desain-grafis-teratas.html at 2024-10-25T00:55:01.277120 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/15-prompt-chatgpt-untuk-membuat-artikel.html at 2024-10-25T00:55:01.277120 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/sosok-zahra-seafood-yang-viral-gegara.html at 2024-10-26T00:53:28.960986 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/20-foto-profilpp-luffy-gear-5-one-piece.html at 2024-10-26T00:53:28.960986 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/10-cara-efektif-belajar-bahasa-jepang.html at 2024-10-26T00:53:28.960986 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/10-website-ai-untuk-membuat-logo-gratis.html at 2024-10-26T00:53:28.960986 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/10-platform-ai-desain-grafis-teratas.html at 2024-10-26T00:53:28.960986 UTC
