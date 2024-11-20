@@ -548,3 +548,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sah
 Submitted URL: https://www.yukinoshita.web.id/2024/11/link-grup-whatsapp-jomblo-terbaru-2024.html at 2024-11-19T00:57:31.733883 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/motor-yang-cocok-untuk-keluarga.html at 2024-11-19T00:57:31.733883 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/15-prompt-chatgpt-untuk-membuat-artikel.html at 2024-11-19T00:57:31.733883 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/link-video-onic-lydia-yang-viral-di-twitter.html at 2024-11-20T00:57:01.325780 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-11-20T00:57:01.325780 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/link-grup-whatsapp-jomblo-terbaru-2024.html at 2024-11-20T00:57:01.325780 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/motor-yang-cocok-untuk-keluarga.html at 2024-11-20T00:57:01.325780 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/15-prompt-chatgpt-untuk-membuat-artikel.html at 2024-11-20T00:57:01.325780 UTC
