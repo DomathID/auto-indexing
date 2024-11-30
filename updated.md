@@ -598,3 +598,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-mengatasi-devices-xia
 Submitted URL: https://www.yukinoshita.web.id/2024/11/link-video-onic-lydia-yang-viral-di-twitter.html at 2024-11-29T00:58:47.297296 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-11-29T00:58:47.297296 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/link-grup-whatsapp-jomblo-terbaru-2024.html at 2024-11-29T00:58:47.297296 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-11-30T00:57:12.905582 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-mengatasi-devices-xiaomi-tidak.html at 2024-11-30T00:57:12.905582 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/link-video-onic-lydia-yang-viral-di-twitter.html at 2024-11-30T00:57:12.905582 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-11-30T00:57:12.905582 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/link-grup-whatsapp-jomblo-terbaru-2024.html at 2024-11-30T00:57:12.905582 UTC
