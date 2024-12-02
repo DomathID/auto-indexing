@@ -608,3 +608,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-mengatasi-devices-xia
 Submitted URL: https://www.yukinoshita.web.id/2024/11/link-video-onic-lydia-yang-viral-di-twitter.html at 2024-12-01T01:08:38.455283 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-12-01T01:08:38.455283 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/link-grup-whatsapp-jomblo-terbaru-2024.html at 2024-12-01T01:08:38.455283 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk-yang-tidak.html at 2024-12-02T01:01:00.693502 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-downgrade-miui-berbagai-versi.html at 2024-12-02T01:01:00.693502 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-12-02T01:01:00.693502 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visitor-jingling.html at 2024-12-02T01:01:00.693502 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/02/script-ddos-attack-dengan-termux-terbaru.html at 2024-12-02T01:01:00.693502 UTC
