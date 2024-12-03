@@ -613,3 +613,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-downgrade-miui-berbag
 Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-12-02T01:01:00.693502 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visitor-jingling.html at 2024-12-02T01:01:00.693502 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/02/script-ddos-attack-dengan-termux-terbaru.html at 2024-12-02T01:01:00.693502 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-03T01:00:03.422539 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk-yang-tidak.html at 2024-12-03T01:00:03.422539 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-downgrade-miui-berbagai-versi.html at 2024-12-03T01:00:03.422539 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-12-03T01:00:03.422539 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visitor-jingling.html at 2024-12-03T01:00:03.422539 UTC
