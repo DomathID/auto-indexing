@@ -618,3 +618,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk
 Submitted URL: https://www.yukinoshita.web.id/2024/11/cara-downgrade-miui-berbagai-versi.html at 2024-12-03T01:00:03.422539 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/apa-yang-dimaksud-dengan-serangan-ddos.html at 2024-12-03T01:00:03.422539 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/11/cara-mengatasi-auto-visitor-jingling.html at 2024-12-03T01:00:03.422539 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/7-langkah-mudah-menulis-cerpen.html at 2024-12-04T01:00:01.365416 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/10/fakta-tentang-kanae-kocho-demon-slayer.html at 2024-12-04T01:00:01.365416 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/review-deadpool-wolverine-kolaborasi.html at 2024-12-04T01:00:01.365416 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-04T01:00:01.365416 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk-yang-tidak.html at 2024-12-04T01:00:01.365416 UTC
