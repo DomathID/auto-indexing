@@ -623,3 +623,8 @@ Submitted URL: https://www.yukinoshita.web.id/2022/10/fakta-tentang-kanae-kocho-
 Submitted URL: https://www.yukinoshita.web.id/2024/12/review-deadpool-wolverine-kolaborasi.html at 2024-12-04T01:00:01.365416 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-04T01:00:01.365416 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk-yang-tidak.html at 2024-12-04T01:00:01.365416 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditolak-zarchiver.html at 2024-12-05T01:00:09.521925 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/tips-dasar-belajar-bahasa-jepang-pemula.html at 2024-12-05T01:00:09.521925 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/10-cara-efektif-belajar-bahasa-jepang.html at 2024-12-05T01:00:09.521925 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/perawatan-kucing-senior-kebutuhan-khusus-usia-lanjut.html at 2024-12-05T01:00:09.521925 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/3-strategi-menghindari-vendor-lock-in.html at 2024-12-05T01:00:09.521925 UTC
