@@ -628,3 +628,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/tips-dasar-belajar-bahasa-
 Submitted URL: https://www.yukinoshita.web.id/2024/10/10-cara-efektif-belajar-bahasa-jepang.html at 2024-12-05T01:00:09.521925 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/perawatan-kucing-senior-kebutuhan-khusus-usia-lanjut.html at 2024-12-05T01:00:09.521925 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/3-strategi-menghindari-vendor-lock-in.html at 2024-12-05T01:00:09.521925 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/01/cara-mengatasi-akses-ditolak-zarchiver.html at 2024-12-06T00:59:23.347759 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/tips-dasar-belajar-bahasa-jepang-pemula.html at 2024-12-06T00:59:23.347759 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/10-cara-efektif-belajar-bahasa-jepang.html at 2024-12-06T00:59:23.347759 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/perawatan-kucing-senior-kebutuhan-khusus-usia-lanjut.html at 2024-12-06T00:59:23.347759 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/3-strategi-menghindari-vendor-lock-in.html at 2024-12-06T00:59:23.347759 UTC
