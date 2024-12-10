@@ -648,3 +648,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan
 Submitted URL: https://www.yukinoshita.web.id/2024/12/mudah-cara-menghilangkan-tulisan-capcut.html at 2024-12-09T01:01:37.819226 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/02/build-hero-clint-tersakit-full-damage-ML.html at 2024-12-09T01:01:37.819226 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/09/tutorial-cara-mengakses-ftp-dan-sftp.html at 2024-12-09T01:01:37.819226 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/nonton-dandadan-episode-10-sub-indo.html at 2024-12-10T01:00:57.763568 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-10T01:00:57.763568 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/mudah-cara-menghilangkan-tulisan-capcut.html at 2024-12-10T01:00:57.763568 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/02/build-hero-clint-tersakit-full-damage-ML.html at 2024-12-10T01:00:57.763568 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/tutorial-cara-mengakses-ftp-dan-sftp.html at 2024-12-10T01:00:57.763568 UTC
