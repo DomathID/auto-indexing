@@ -663,3 +663,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/rental-mobil-jazz-bandung-
 Submitted URL: https://www.yukinoshita.web.id/2024/12/nonton-dandadan-episode-10-sub-indo.html at 2024-12-12T00:59:36.865140 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-12T00:59:36.865140 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/mudah-cara-menghilangkan-tulisan-capcut.html at 2024-12-12T00:59:36.865140 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-mengatasi-adsense-nik-indonesia.html at 2024-12-13T01:00:53.388028 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/rental-mobil-jazz-bandung-harga-murah.html at 2024-12-13T01:00:53.388028 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/nonton-dandadan-episode-10-sub-indo.html at 2024-12-13T01:00:53.388028 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-13T01:00:53.388028 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/mudah-cara-menghilangkan-tulisan-capcut.html at 2024-12-13T01:00:53.388028 UTC
