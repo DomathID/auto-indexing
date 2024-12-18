@@ -688,3 +688,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-stop-pop-up-promosi-i
 Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-mengatasi-adsense-nik-indonesia.html at 2024-12-17T01:00:01.555716 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/rental-mobil-jazz-bandung-harga-murah.html at 2024-12-17T01:00:01.555716 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/nonton-dandadan-episode-10-sub-indo.html at 2024-12-17T01:00:01.555716 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-12-18T00:57:32.506876 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-12-18T00:57:32.506876 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-12-18T00:57:32.506876 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-aktivasi-windows-10-permanen-tanpa-key.html at 2024-12-18T00:57:32.506876 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/menambahkan-alamat-rumah-atau-toko-google-map.html at 2024-12-18T00:57:32.506876 UTC
