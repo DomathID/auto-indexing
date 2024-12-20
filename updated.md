@@ -698,3 +698,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gamb
 Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-12-19T00:58:14.164325 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-12-19T00:58:14.164325 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-aktivasi-windows-10-permanen-tanpa-key.html at 2024-12-19T00:58:14.164325 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-20T00:55:16.447494 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2024-12-20T00:55:16.447494 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-12-20T00:55:16.447494 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-12-20T00:55:16.447494 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-aktivasi-windows-10-permanen-tanpa-key.html at 2024-12-20T00:55:16.447494 UTC
