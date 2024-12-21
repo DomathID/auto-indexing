@@ -703,3 +703,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gamb
 Submitted URL: https://www.yukinoshita.web.id/2024/09/how-to-fix-windows-update-error.html at 2024-12-20T00:55:16.447494 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/7-cara-download-tiktok-mp3-musik-sound.html at 2024-12-20T00:55:16.447494 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/09/cara-aktivasi-windows-10-permanen-tanpa-key.html at 2024-12-20T00:55:16.447494 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-21T00:54:10.646078 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authority-pentingnya.html at 2024-12-21T00:54:10.646078 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-membuat-faq-page-schema-markup.html at 2024-12-21T00:54:10.646078 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/05/openai-luncurkan-gpt-4o-ai-lebih-cepat.html at 2024-12-21T00:54:10.646078 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/750-backlink-sites-dengan-list-da-pa.html at 2024-12-21T00:54:10.646078 UTC
