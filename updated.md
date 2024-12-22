@@ -708,3 +708,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authorit
 Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-membuat-faq-page-schema-markup.html at 2024-12-21T00:54:10.646078 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/05/openai-luncurkan-gpt-4o-ai-lebih-cepat.html at 2024-12-21T00:54:10.646078 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/04/750-backlink-sites-dengan-list-da-pa.html at 2024-12-21T00:54:10.646078 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/20-foto-profilpp-luffy-gear-5-one-piece.html at 2024-12-22T00:59:39.886486 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/meta-ai-bisa-digunakan-di-grup-whatsapp.html at 2024-12-22T00:59:39.886486 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/keuntungan-memiliki-website-untuk-umkm.html at 2024-12-22T00:59:39.886486 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-22T00:59:39.886486 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authority-pentingnya.html at 2024-12-22T00:59:39.886486 UTC
