@@ -718,3 +718,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/meta-ai-bisa-digunakan-di-
 Submitted URL: https://www.yukinoshita.web.id/2024/12/keuntungan-memiliki-website-untuk-umkm.html at 2024-12-23T00:56:34.948239 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-23T00:56:34.948239 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authority-pentingnya.html at 2024-12-23T00:56:34.948239 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/20-foto-profilpp-luffy-gear-5-one-piece.html at 2024-12-24T00:55:02.209614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/meta-ai-bisa-digunakan-di-grup-whatsapp.html at 2024-12-24T00:55:02.209614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/keuntungan-memiliki-website-untuk-umkm.html at 2024-12-24T00:55:02.209614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-24T00:55:02.209614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authority-pentingnya.html at 2024-12-24T00:55:02.209614 UTC
