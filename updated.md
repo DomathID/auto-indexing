@@ -723,3 +723,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/meta-ai-bisa-digunakan-di-
 Submitted URL: https://www.yukinoshita.web.id/2024/12/keuntungan-memiliki-website-untuk-umkm.html at 2024-12-24T00:55:02.209614 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2024-12-24T00:55:02.209614 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/06/pengertian-domain-authority-pentingnya.html at 2024-12-24T00:55:02.209614 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/top-10-da-pa-checker-website-authority.html at 2024-12-25T00:54:24.760000 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-cara-cek-broken-link-pada-website.html at 2024-12-25T00:54:24.760000 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/04/profile-nakime-upper-moon-4-anime-demon.html at 2024-12-25T00:54:24.760000 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/baca-manga-one-piece-bab-1134.html at 2024-12-25T00:54:24.760000 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-12-25T00:54:24.760000 UTC
