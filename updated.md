@@ -728,3 +728,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/10-cara-cek-broken-link-pa
 Submitted URL: https://www.yukinoshita.web.id/2023/04/profile-nakime-upper-moon-4-anime-demon.html at 2024-12-25T00:54:24.760000 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/baca-manga-one-piece-bab-1134.html at 2024-12-25T00:54:24.760000 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/08/cara-mengaktifkan-profile-picture-guard.html at 2024-12-25T00:54:24.760000 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/cara-download-video-dari-doodstream.html at 2024-12-26T00:54:35.583811 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-12-26T00:54:35.583811 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/02/cara-download-doodstream.html at 2024-12-26T00:54:35.583811 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-mengatasi-adsense-nik-indonesia.html at 2024-12-26T00:54:35.583811 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/cara-mengubah-tampilan-termux-android.html at 2024-12-26T00:54:35.583811 UTC
