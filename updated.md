@@ -738,3 +738,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/10/meta-tag-seo-blogger-2024-
 Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-12-27T00:54:44.294391 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/11/apa-itu-fastboot-di-hp-dan-cara-keluarnya.html at 2024-12-27T00:54:44.294391 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-memperbaiki-flashdisk-yang-tidak.html at 2024-12-27T00:54:44.294391 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/script-termux-spam-sms-unlimited-three.html at 2024-12-28T00:53:51.551797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlimited-edukasi.html at 2024-12-28T00:53:51.551797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/15-prompt-chatgpt-untuk-membuat-artikel.html at 2024-12-28T00:53:51.551797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/meta-tag-seo-blogger-2024-panduan.html at 2024-12-28T00:53:51.551797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-12-28T00:53:51.551797 UTC
