@@ -748,3 +748,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlim
 Submitted URL: https://www.yukinoshita.web.id/2024/10/15-prompt-chatgpt-untuk-membuat-artikel.html at 2024-12-29T01:00:06.451181 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/meta-tag-seo-blogger-2024-panduan.html at 2024-12-29T01:00:06.451181 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/500-grup-wa-cari-teman-sahabat-bestie.html at 2024-12-29T01:00:06.451181 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/list-1150-dorks-google-forum-seo-backlink.html at 2024-12-30T00:56:58.707377 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-12-30T00:56:58.707377 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/daftar-google-dorks-terbaru-2023.html at 2024-12-30T00:56:58.707377 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-12-30T00:56:58.707377 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/apa-itu-backlink-profile-website.html at 2024-12-30T00:56:58.707377 UTC
