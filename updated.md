@@ -753,3 +753,8 @@ Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodst
 Submitted URL: https://www.yukinoshita.web.id/2023/09/daftar-google-dorks-terbaru-2023.html at 2024-12-30T00:56:58.707377 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/09/dork-google-untuk-mencari-backlink-edu.html at 2024-12-30T00:56:58.707377 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/apa-itu-backlink-profile-website.html at 2024-12-30T00:56:58.707377 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-cara-cek-broken-link-pada-website.html at 2024-12-31T00:54:41.916459 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlimited-edukasi.html at 2024-12-31T00:54:41.916459 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/apa-itu-backlink-profile-website.html at 2024-12-31T00:54:41.916459 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/list-1150-dorks-google-forum-seo-backlink.html at 2024-12-31T00:54:41.916459 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-12-31T00:54:41.916459 UTC
