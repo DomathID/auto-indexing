@@ -758,3 +758,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlim
 Submitted URL: https://www.yukinoshita.web.id/2024/12/apa-itu-backlink-profile-website.html at 2024-12-31T00:54:41.916459 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/10/list-1150-dorks-google-forum-seo-backlink.html at 2024-12-31T00:54:41.916459 UTC
 Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2024-12-31T00:54:41.916459 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2025-01-01T00:59:53.225149 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-download-video-dari-lulustream.html at 2025-01-01T00:59:53.225149 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/02/cara-download-doodstream.html at 2025-01-01T00:59:53.225149 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/10/cara-download-video-doodstream.html at 2025-01-01T00:59:53.225149 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-cara-cek-broken-link-pada-website.html at 2025-01-01T00:59:53.225149 UTC
