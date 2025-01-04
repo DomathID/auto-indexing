@@ -773,3 +773,8 @@ Submitted URL: https://www.yukinoshita.web.id/2025/01/apa-itu-contextual-backlin
 Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2025-01-03T00:54:59.030325 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/05/cara-download-video-dari-lulustream.html at 2025-01-03T00:54:59.030325 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/02/cara-download-doodstream.html at 2025-01-03T00:54:59.030325 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/20-anime-pfp-untuk-pasangan-couple.html at 2025-01-04T00:53:50.253270 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/pp-couple-sahabat-ber-2-terpisah-cute-hijab-anime.html at 2025-01-04T00:53:50.253270 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/20-pp-couple-bestie-ber-2-aesthetic.html at 2025-01-04T00:53:50.253270 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/berikut-kumpulan-pp-couple-anime.html at 2025-01-04T00:53:50.253270 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2025-01-04T00:53:50.253270 UTC
