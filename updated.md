@@ -783,3 +783,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/06/pp-couple-sahabat-ber-2-te
 Submitted URL: https://www.yukinoshita.web.id/2024/06/20-pp-couple-bestie-ber-2-aesthetic.html at 2025-01-05T00:59:42.247655 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/berikut-kumpulan-pp-couple-anime.html at 2025-01-05T00:59:42.247655 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/08/kumpulan-pp-couple-pacar-ber-2-terpisah-estetik.html at 2025-01-05T00:59:42.247655 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-stop-pop-up-promosi-indosat.html at 2025-01-06T00:57:42.592227 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2025-01-06T00:57:42.592227 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/apa-itu-contextual-backlink.html at 2025-01-06T00:57:42.592227 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/20-anime-pfp-untuk-pasangan-couple.html at 2025-01-06T00:57:42.592227 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/06/pp-couple-sahabat-ber-2-terpisah-cute-hijab-anime.html at 2025-01-06T00:57:42.592227 UTC
