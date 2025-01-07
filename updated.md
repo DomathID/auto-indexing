@@ -788,3 +788,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu
 Submitted URL: https://www.yukinoshita.web.id/2025/01/apa-itu-contextual-backlink.html at 2025-01-06T00:57:42.592227 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/20-anime-pfp-untuk-pasangan-couple.html at 2025-01-06T00:57:42.592227 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/06/pp-couple-sahabat-ber-2-terpisah-cute-hijab-anime.html at 2025-01-06T00:57:42.592227 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/cara-download-scribd-gratis-tanpa-login.html at 2025-01-07T00:55:34.471559 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-stop-pop-up-promosi-indosat.html at 2025-01-07T00:55:34.471559 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2025-01-07T00:55:34.471559 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/apa-itu-contextual-backlink.html at 2025-01-07T00:55:34.471559 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/07/20-anime-pfp-untuk-pasangan-couple.html at 2025-01-07T00:55:34.471559 UTC
