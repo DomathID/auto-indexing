@@ -793,3 +793,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-stop-pop-up-promosi-i
 Submitted URL: https://www.yukinoshita.web.id/2024/12/17-fakta-kokushibo-kimetsu-no-yaiba.html at 2025-01-07T00:55:34.471559 UTC
 Submitted URL: https://www.yukinoshita.web.id/2025/01/apa-itu-contextual-backlink.html at 2025-01-07T00:55:34.471559 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/07/20-anime-pfp-untuk-pasangan-couple.html at 2025-01-07T00:55:34.471559 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlimited-edukasi.html at 2025-01-08T00:55:24.560541 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2025-01-08T00:55:24.560541 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2025-01-08T00:55:24.560541 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/top-10-da-pa-checker-website-authority.html at 2025-01-08T00:55:24.560541 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/11-situs-nonton-streaming-anime-sub-indo.html at 2025-01-08T00:55:24.560541 UTC
