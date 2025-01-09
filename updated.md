@@ -798,3 +798,8 @@ Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkua
 Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2025-01-08T00:55:24.560541 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/top-10-da-pa-checker-website-authority.html at 2025-01-08T00:55:24.560541 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/11-situs-nonton-streaming-anime-sub-indo.html at 2025-01-08T00:55:24.560541 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlimited-edukasi.html at 2025-01-09T00:55:03.086633 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/08/10-petarung-sma-oya-terkuat-sepanjang.html at 2025-01-09T00:55:03.086633 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/09/menambahkan-backgound-gambar-di-windows-terminal.html at 2025-01-09T00:55:03.086633 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/top-10-da-pa-checker-website-authority.html at 2025-01-09T00:55:03.086633 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/11-situs-nonton-streaming-anime-sub-indo.html at 2025-01-09T00:55:03.086633 UTC
