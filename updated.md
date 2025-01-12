@@ -813,3 +813,8 @@ Submitted URL: https://www.yukinoshita.web.id/2025/01/peralatan-masak-hemat-ener
 Submitted URL: https://www.yukinoshita.web.id/2025/01/8-online-travel-agent-untuk-pesan-tiket.html at 2025-01-11T00:55:35.220732 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/10-cara-cek-broken-link-pada-website.html at 2025-01-11T00:55:35.220732 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/12/10-kumpulan-bug-axis-unlimited-edukasi.html at 2025-01-11T00:55:35.220732 UTC
+Submitted URL: https://www.yukinoshita.web.id/2020/08/cara-publish-github-package-registry-di.html at 2025-01-12T01:01:03.446797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2023/07/cara-mengubah-tampilan-termux-android.html at 2025-01-12T01:01:03.446797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/04/cara-menjalankan-localhost-di-android.html at 2025-01-12T01:01:03.446797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/mengintegrasikan-desain-grafis-dengan-animasi.html at 2025-01-12T01:01:03.446797 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/mengapa-jersey-vintage-semakin-populer.html at 2025-01-12T01:01:03.446797 UTC
