@@ -883,3 +883,8 @@ Submitted URL: https://www.yukinoshita.web.id/2025/01/donghua-vs-anime-apa-bedan
 Submitted URL: https://www.yukinoshita.web.id/2024/10/demon-slayer-mengenal-7-tubuh-hantengu.html at 2025-01-25T00:50:24.839759 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/15-tiktok-downloader-tanpa-watermark.html at 2025-01-25T00:50:24.839759 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/sosok-zahra-seafood-yang-viral-gegara.html at 2025-01-25T00:50:24.839759 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/11/alasan-gojo-satoru-selalu-memakai.html at 2025-01-26T00:55:29.949254 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/12/pengertian-dan-perbedaan-anime-tv-dan-bd.html at 2025-01-26T00:55:29.949254 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/10/11-situs-nonton-streaming-anime-sub-indo.html at 2025-01-26T00:55:29.949254 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/tips-aman-dan-menyenangkan-saat-arung.html at 2025-01-26T00:55:29.949254 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-mengatasi-adsense-nik-indonesia.html at 2025-01-26T00:55:29.949254 UTC
