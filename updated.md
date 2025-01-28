@@ -893,3 +893,8 @@ Submitted URL: https://www.yukinoshita.web.id/2022/11/alasan-gojo-satoru-selalu-
 Submitted URL: https://www.yukinoshita.web.id/2022/12/pengertian-dan-perbedaan-anime-tv-dan-bd.html at 2025-01-27T00:55:05.268180 UTC
 Submitted URL: https://www.yukinoshita.web.id/2024/10/11-situs-nonton-streaming-anime-sub-indo.html at 2025-01-27T00:55:05.268180 UTC
 Submitted URL: https://www.yukinoshita.web.id/2025/01/tips-aman-dan-menyenangkan-saat-arung.html at 2025-01-27T00:55:05.268180 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/tips-membangun-ketangguhan-mental-anak.html at 2025-01-28T00:53:53.134088 UTC
+Submitted URL: https://www.yukinoshita.web.id/2025/01/8-rekomendasi-website-custom-cursor.html at 2025-01-28T00:53:53.134088 UTC
+Submitted URL: https://www.yukinoshita.web.id/2024/12/cara-mengatasi-adsense-nik-indonesia.html at 2025-01-28T00:53:53.134088 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/11/alasan-gojo-satoru-selalu-memakai.html at 2025-01-28T00:53:53.134088 UTC
+Submitted URL: https://www.yukinoshita.web.id/2022/12/pengertian-dan-perbedaan-anime-tv-dan-bd.html at 2025-01-28T00:53:53.134088 UTC
